@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate online and in person
 - 📫 How to reach me via LinkedIn
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love brunch on Sundays on the patio in Uptown Dallas
+- ⚡ Fun fact: I love brunch on Sundays on the patio in Uptown
 
 <!---
 soladele318/soladele318 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
